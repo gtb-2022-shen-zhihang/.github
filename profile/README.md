@@ -4,10 +4,11 @@
 These are mes:
 
 2022 in Chongqin, ⬇️
-![DSCF0267 Large](https://user-images.githubusercontent.com/47954741/159501425-310c0d90-7340-474e-a3ba-06820a6e2fd9.jpeg)
+![DSCF0267 Small](https://user-images.githubusercontent.com/47954741/159518532-b62e5470-377a-4416-aeca-a61cd802db25.jpeg)
+
 
 2021 in Sanya, ⬇️
-![94e4bf5b6ldedea39e8283eb89ccb6d1 Large](https://user-images.githubusercontent.com/47954741/159516689-dff69e05-8c66-4eba-ba6e-c0f53123c9ee.jpeg)
+![94e4bf5b6ldedea39e8283eb89ccb6d1 Medium](https://user-images.githubusercontent.com/47954741/159518329-08f1c7e4-219d-4551-aa64-3c6da677d289.jpeg)
 
 
 Feb 2021 on the flight back to China ⬇️,
@@ -17,12 +18,10 @@ Feb 2021 on the flight back to China ⬇️,
 ![251647943627_ pic](https://user-images.githubusercontent.com/47954741/159517102-4803cdcd-d167-48e8-a062-4c1f59abfa63.jpg)
 
 2019 in Perth, beautiful west Australia ⬇️,
-![271647943629_ pic](https://user-images.githubusercontent.com/47954741/159517142-0b7bc6ea-d290-4b17-a78e-e84df62bd09b.jpg)
+![271647943629_ Small](https://user-images.githubusercontent.com/47954741/159518408-358181da-0c2a-4f8e-ad48-d3cd248fec50.jpeg)
 
 2018 in Brisbane, the begining of my oversea study life ~ ⬇️
-![291647957995_ pic](https://user-images.githubusercontent.com/47954741/159517178-ad537e1f-aa72-4f29-b61b-cb27ec62b25f.jpg)
-
-
+![291647957995_ Small](https://user-images.githubusercontent.com/47954741/159518481-3e69ccd9-d71c-4d96-9bf3-2054656f4b04.jpeg)
 
 
 
