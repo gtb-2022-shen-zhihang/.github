@@ -1,7 +1,8 @@
 ## Hi there 👋
-## This is Zhihang(Zeon) Shen! A new data developer to thoughtWorks
+## This is Zhihang(Zeon) Shen! 
+##A new data developer to thoughtWorks
 
-These are mes:
+These are MEs:
 
 2022 in Chongqin, ⬇️
 
