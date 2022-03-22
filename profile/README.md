@@ -1,12 +1,25 @@
 ## Hi there 👋
+## This is Zhihang(Zeon) Shen! A new data developer to thoughtWorks
 
-<!--
+These are mes:
+2022 in Chongqin,
 
-**Here are some ideas to get you started:**
+2021 in Sanya,
 
-🙋‍♀️ A short introduction - what is your organization all about?
-🌈 Contribution guidelines - how can the community get involved?
-👩‍💻 Useful resources - where can the community find your docs? Is there anything else the community should know?
-🍿 Fun facts - what does your team eat for breakfast?
-🧙 Remember, you can do mighty things with the power of [Markdown](https://docs.github.com/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
--->
+Feb 2021 on the flight back to China,
+
+2020 in Sydney with my friends and Juju (the cat),
+
+2019 in Perth, beautiful west Australia,
+
+2018 in Brisbane, the begining of my oversea study life ~
+
+
+
+
+
+
+
+
+
+
