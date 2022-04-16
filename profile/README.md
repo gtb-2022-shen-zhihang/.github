@@ -1,6 +1,6 @@
 ## Hi there 👋
 ## This is Zhihang(Zeon) Shen! 
-##A new data developer to thoughtWorks
+## A new data developer to thoughtWorks
 
 These are MEs:
 
