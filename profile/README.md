@@ -4,7 +4,13 @@
 
 These are MEs:
 
-2022 in Chongqin, ⬇️
+The longest (and maybe the worst) quaratine I've ever exprienced in Shanghai
+
+![IMG_0209 小](https://user-images.githubusercontent.com/47954741/166882251-15f4b1ab-ebad-443e-8c8c-6fb152d43d05.jpeg)
+
+
+
+2022 in Chongqin (b4 quaratine), ⬇️
 
 ![DSCF0267 Small](https://user-images.githubusercontent.com/47954741/159518532-b62e5470-377a-4416-aeca-a61cd802db25.jpeg)
 
